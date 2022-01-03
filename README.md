@@ -1,4 +1,4 @@
-# desarrollador ios
+#empleo #remoto #ios #empleoit #hiring #junior
 Para importante banco, nos encontramos en la búsqueda de un Desarrollador iOS Jr/Ssr/Sr.   
 Requisitos: Mínimo de 6 meses como Desarrollador iOS .  
 Perfil técnico: iOS; Swift; Programación en C    
